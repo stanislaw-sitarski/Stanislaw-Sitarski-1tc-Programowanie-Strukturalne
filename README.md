@@ -1,0 +1,1 @@
+# Stanislaw-Sitarski-1tc-Programowanie-Strukturalne
